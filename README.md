@@ -4,4 +4,4 @@ The word "yo" is an inside joke in the community for the viral indie game "Will 
 
 
 # **TRAILER:**
-# https://www.youtube.com/embed/LrUX2tSehhE
+# https://youtu.be/LrUX2tSehhE
