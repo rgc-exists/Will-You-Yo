@@ -3,4 +3,4 @@
 The word "yo" is an inside joke in the community for the viral indie game "Will You Snail." You can use this mod to change almost EVERYTHING to "yo"!
 
 
-# **TRAILER:** https://youtu.be/LrUX2tSehhE
+# **TRAILER:** https://youtu.be/LrUX2tSehhE (Uses slightly outdated footage)
